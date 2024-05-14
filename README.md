@@ -1,0 +1,1 @@
+# variabel_nurpl1
